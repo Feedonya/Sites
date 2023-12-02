@@ -1,4 +1,4 @@
 # Sites
-Заработал на сайтах за 5 минут
+I earned money on websites in 5 minutes
 
-В 22 году я сделал 3 сайта за 5 минут и заработал на это деньги (продал их)
+In 2022, I made 3 websites in 5 minutes and earned money for it (sold them)
